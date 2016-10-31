@@ -6,7 +6,7 @@
 #### 6
 #### 7 Hellllo
 #### 8
-#### 9 GITHUB IS REALLY GOOD WOOOOOOOOO!
+#### 9 GitHub is awesome
 #### 10
 #### 11 
 #### 12
